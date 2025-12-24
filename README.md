@@ -4,5 +4,4 @@
 - 🚀 Always learning and improving  
 
 Welcome to my profile 🙂
-- ⚡ Fun fact: ...
--->
+
